@@ -1,1 +1,0 @@
-# NatuClaraa2.0
